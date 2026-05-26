@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+[![](https://profile.renyaa.com/discord/885426288897191936)](https://discord.com/users/885426288897191936)
